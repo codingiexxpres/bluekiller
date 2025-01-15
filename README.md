@@ -1,2 +1,5 @@
 # bluekiller
-kills you pc 
+
+
+
+# ONWER IS NOT RESPONIBL FOR ANY DAMAGE TO YOUR PC
